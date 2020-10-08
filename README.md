@@ -1,1 +1,18 @@
-# bbbbbn
+sayang
+anjing
+bismillah
+bismilah
+bangsat
+sayank
+jancuk
+jancok
+jancuk123
+jancok123
+dancuk
+dancok
+dancuk123
+dancok123
+ganteng
+orangganteng
+sayangkamu
+cantik
